@@ -1,5 +1,5 @@
 ---
-header_image: "images/cover-image.jpg"
-header_headline: "Jane Doe"
-header_subheadline: "Hi there , I am a Nutrition Coach & Chef Consultant"
+header_image: "images/retrosupply-jLwVAUtLOAQ-unsplash.jpg"
+header_headline: "Doley Hnderson"
+header_subheadline: "Hi there, I am a writer of ficiton and creative nonficiton"
 ---
