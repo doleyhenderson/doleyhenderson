@@ -29,5 +29,3 @@ My writing is published in Canadian and U.S. literary journals. A full list is a
 [The Sunlight Press, April 2019](https://www.thesunlightpress.com/2019/04/09/zambezi/)
 
 "Nikelwa and Tulani pull me over the side. I gasp, “Siyabonga, Thank-you!” My teeth chatter, my legs shake, my face beams. I fist-pump the cheering paddlers. I didn’t go to the bottom."
-
----
