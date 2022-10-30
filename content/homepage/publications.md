@@ -4,7 +4,7 @@ weight: 2
 header_menu: true
 ---
 
-Lorem ipsum dolor sit amet, consectetur adipiscing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua. Ut enim ad minim veniam, quis nostrud exercitation ullamco laboris nisi ut aliquip ex ea commodo consequat.
+My writing is published in Canadian and U.S. literary journals. A full list is available on my publications page. Here are some of my recent stories.
 
 ---
 ### Is This The Ritz?
