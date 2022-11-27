@@ -4,9 +4,16 @@ weight: 2
 header_menu: true
 ---
 
-My writing is published in Canadian and U.S. literary journals. A full list is available on my [publications page](publications). Here are some of my recent stories.
+My writing is published in Canadian and U.S. literary journals. A full list is available on my [publications page](publications). Here are some stories from 2022 and 2021.
 
 ---
+
+“Water World”, In the Vale anthology (July 2022)
+
+"Sryker", emerge 21 (Oct 2021) 
+
+"Human Touch", the New Quarterly, Issue 158 (Spring 2021) 
+
 ### Is This The Ritz?
 [Sunspot Literature, March 2020](https://sunspotlit.com/editions%3A-2020)
 
