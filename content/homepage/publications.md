@@ -12,7 +12,7 @@ My writing is published in Canadian and U.S. literary journals. A full list is a
 
 https://readquebec.ca/book/in-the-vale/
 
-"Sryker", emerge 21 (Oct 2021) 
+"Sryker", emerge 21 The Writers Studio Anthology (Oct 2021) 
 
 https://www.amazon.ca/emerge-21-Writers-Studio-Anthology/dp/1772870838
 
