@@ -1,4 +1,4 @@
-baseURL = "https://doleyhenderson.github.io/"
+baseURL = "https://doleyhenderson.com/"
 disableKinds = ["section", "taxonomy", "term", "RSS", "robotsTXT"]
 defaultContentLanguage = "en"
 theme = "hugo-scroll"
