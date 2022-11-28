@@ -4,7 +4,7 @@ weight: 2
 header_menu: true
 ---
 
-My writing is published in Canadian and U.S. literary journals. A full list is available on my [publications page](publications). Below are a few stories published online and in print in 2022 and 2021.
+My writing is published in Canadian and U.S. literary journals and anthologies. A full list is available on my [publications page](publications). Below are a few of my stories published online and in print in 2022 and 2021.
 
 ---
 
