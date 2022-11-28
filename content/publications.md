@@ -44,7 +44,7 @@ We celebrate: Prosecco in the Alps, Pisco sour in the Andes."
 ### Zambezi
 [Blank Spaces, December 2019](https://blankspaces.alannarusnak.com/p/welcome.html#!/DIGITAL-Blank-Spaces-December-2019-56-pg/p/160707386/category=32566599)
 
-("Rounding the last bend, we hear singing-whistling-clapping dancers, welcoming us to this country, this river, this campsite. I have come home. This is where I belong.") 
+"Rounding the last bend, we hear singing-whistling-clapping dancers, welcoming us to this country, this river, this campsite. I have come home. This is where I belong." 
 
 ---
 ### Water Therapy
@@ -56,7 +56,7 @@ We celebrate: Prosecco in the Alps, Pisco sour in the Andes."
 ### Sunnyside Up/Blue Sky/Honeycomb
 [The New Guard -- BANG!, October 2019](https://www.newguardreview.com/bang)
 
-("Through the morphine haze, I saw myself thrown into the blue sky, like an egg toss on field day. Eleven bones, one short of a dozen, cracked open perfectly, onto a frying highway, then sizzled, sunnyside up. It happens.")
+"Through the morphine haze, I saw myself thrown into the blue sky, like an egg toss on field day. Eleven bones, one short of a dozen, cracked open perfectly, onto a frying highway, then sizzled, sunnyside up. It happens."
 
 ---
 ### Zambezi
@@ -68,6 +68,4 @@ We celebrate: Prosecco in the Alps, Pisco sour in the Andes."
 ### Burnt Toast
 [The Gaspereau Review, Summer 2001](http://www.gaspereau.com/meetthepress.php)
 
-("He laughed at the end, apparently. 'Well, that's that, then,' I said to myself. 'Time to take World War Il off the walls in the den.' Didn't want any damn minister telling me how wonderful he was, wouldn't know him if he fell over him.")
-
----
+"He laughed at the end, apparently. 'Well, that's that, then,' I said to myself. 'Time to take World War Il off the walls in the den.' Didn't want any damn minister telling me how wonderful he was, wouldn't know him if he fell over him."
