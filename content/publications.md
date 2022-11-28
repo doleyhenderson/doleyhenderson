@@ -6,7 +6,7 @@ title: "Publications"
 ### Water World
 [In the Vale anthology, July 2022](https://readquebec.ca/book/in-the-vale/)
 
-"I sway from the gunwale of the kayak, my legs sliding through the slipstream, and I fist-pump the waves as they wash over me."
+"I have been one with water since the first sinking and white-stone sparkling... I sway from the gunwhale of the kayak, my legs sliding through the slipstream, and I fist-pump the waves as they wash over me."
 
 ---
 ### The Scenic Route
@@ -44,6 +44,8 @@ We celebrate: Prosecco in the Alps, Pisco sour in the Andes."
 ### Zambezi
 [Blank Spaces, December 2019](https://blankspaces.alannarusnak.com/p/welcome.html#!/DIGITAL-Blank-Spaces-December-2019-56-pg/p/160707386/category=32566599)
 
+("Rounding the last bend, we hear singing-whistling-clapping dancers, welcoming us to this country, this river, this campsite. I have come home. This is where I belong.") 
+
 ---
 ### Water Therapy
 [Prometheus Dreaming, December 2019](https://www.prometheusdreaming.com/water-therapy)
@@ -54,6 +56,8 @@ We celebrate: Prosecco in the Alps, Pisco sour in the Andes."
 ### Sunnyside Up/Blue Sky/Honeycomb
 [The New Guard -- BANG!, October 2019](https://www.newguardreview.com/bang)
 
+("Through the morphine haze, I saw myself thrown into the blue sky, like an egg toss on field day. Eleven bones, one short of a dozen, cracked open perfectly, onto a frying highway, then sizzled, sunnyside up. It happens.")
+
 ---
 ### Zambezi
 [The Sunlight Press, April 2019](https://www.thesunlightpress.com/2019/04/09/zambezi/)
@@ -63,3 +67,7 @@ We celebrate: Prosecco in the Alps, Pisco sour in the Andes."
 ---
 ### Burnt Toast
 [The Gaspereau Review, Summer 2001](http://www.gaspereau.com/meetthepress.php)
+
+("He laughed at the end, apparently. 'Well, that's that, then,' I said to myself. 'Time to take World War Il off the walls in the den.' Didn't want any damn minister telling me how wonderful he was, wouldn't know him if he fell over him.")
+
+---
