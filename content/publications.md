@@ -9,7 +9,13 @@ title: "Publications"
 "I sway from the gunwale of the kayak, my legs sliding through the slipstream, and I fist-pump the waves as they wash over me."
 
 ---
-### Sryker
+### The Scenic Route
+[Juxtaprose Literary Magazine, Volume 27, February 2022](https://www.juxtaprosemagazine.org/volume-27/)
+
+“'Zygoma,' we sing out, as Dad points to his cheekbone, during our Anatomy lesson. It is the 1950’s. He is a surgeon and we are his clever girls. We memorize the names of muscles and bones."
+
+---
+### Stryker
 [emerge 21: The Writers Studio Anthology, October 2021](https://www.amazon.ca/emerge-21-Writers-Studio-Anthology/dp/1772870838)
 
 "My hospital room is directly behind the nurses' station, so they can skip over when I press the call button. They squeak in to flip Stryker every four hours."
