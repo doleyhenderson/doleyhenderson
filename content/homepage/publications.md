@@ -18,7 +18,7 @@ My writing is published in Canadian and U.S. literary journals. A full list is a
 ### The Scenic Route
 [Juxtaprose Literary Magazine, Volume 27](https://www.juxtaprosemagazine.org/volume-27/)
 
-"“Zygoma,” we sing out, as Dad points to his cheekbone, during our Anatomy lesson. It is the 1950’s. He is a surgeon and we are his clever girls. We memorize the names of muscles and bones." 
+“'Zygoma,' we sing out, as Dad points to his cheekbone, during our Anatomy lesson. It is the 1950’s. He is a surgeon and we are his clever girls. We memorize the names of muscles and bones." 
 
 ---
 
