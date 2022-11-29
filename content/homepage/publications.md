@@ -16,7 +16,7 @@ My writing is published in Canadian and U.S. literary journals and anthologies. 
 ---
 
 ### The Scenic Route
-[Juxtaprose Literary Magazine, Volume 27, February 2022](https://www.juxtaprosemagazine.org/volume-27/)
+[http://www.juxtaprosemagazine.org/the-scenic-route-by-doley-henderson/]
 
 “'Zygoma,' we sing out, as Dad points to his cheekbone, during our Anatomy lesson. It is the 1950’s. He is a surgeon and we are his clever girls. We memorize the names of muscles and bones." 
 
