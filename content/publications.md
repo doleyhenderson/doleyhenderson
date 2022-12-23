@@ -30,7 +30,7 @@ We celebrate: Prosecco in the Alps, Pisco sour in the Andes."
 
 ---
 ### Is This The Ritz?
-[Sunspot Literature, March 2020](https://sunspotlit.com/editions%3A-2020)
+[Sunspot Literary Journal, March 2020](https://sunspotlit.com/editions%3A-2020)
 
 "Big fat truck came out of nowhere, right at us. I sailed straight through the windshield — no seatbelts of course, it was the ‘50s — and came to, lying on the highway." 
 
