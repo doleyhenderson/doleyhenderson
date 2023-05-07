@@ -11,7 +11,7 @@ My writing is published in Canadian and U.S. literary journals and anthologies. 
 ### Water World
 [In the Vale anthology, July 2022](https://readquebec.ca/book/in-the-vale/)
 
-"I have been one with water since that first sinking and white-atone sparkling....I sway from the gunwhale of the kayak, my legs sliding through the slipstream, and I fist-pump the waves as they wash over me."
+"I have been one with water since that first sinking and white-stone sparkling....I sway from the gunwhale of the kayak, my legs sliding through the slipstream, and I fist-pump the waves as they wash over me."
 
 ---
 
