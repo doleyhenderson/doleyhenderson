@@ -3,6 +3,12 @@ title: "Publications"
 ---
 
 ---
+### Wild Mustard
+Emerge 4 chapbook, September 2023 https://edenmillswritersfestival.ca/emerge-2/
+
+"'In the old days, they gave you ether,' say Mum. She is a tiny mound of skin and bones on a stretcher wheeling to the OR. She closes her eyes, hand on an invisible mask. 'Sniff, sniff.'"
+
+---
 ### Water World
 [In the Vale anthology, July 2022](https://readquebec.ca/book/in-the-vale/)
 
