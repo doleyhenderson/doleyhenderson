@@ -4,4 +4,4 @@ weight: 4
 header_menu: true
 ---
 
-{{<icon class="fa fa-envelope">}}&nbsp;[mail@doleyhenderson.com](mailto:mail@doleyhenderson.com)
+{{<icon class="fa fa-envelope">}}&nbsp;[doleyhenderson.writer@gmail.com](mailto:doleyhenderson.writer@gmail.com)
