@@ -9,14 +9,14 @@ My writing is published in Canadian and U.S. literary journals and anthologies. 
 ---
 
 ### Scoliosis
-Journal of Expressive Writing, September 7, 2023 https://www.journalofexpressivewriting.com/
+[Journal of Expressive Writing, September 7, 2023](https://www.journalofexpressivewriting.com/)
 
 "It is incurable. Hippocrates diagnosed it in 400 BCE and had four grown men stand on a patient's spine to strighten the curve. Guess what? It didn't work." 
 
 ___
 
 ### Wild Mustard
-Winner, Eden Mills Writers Festival 2023 Creative Nonfiction Contest, Emerge 4 chapbook, September 2023 https://edenmillswritersfestival.ca/emerge-2/
+Winner, [Eden Mills Writers Festival 2023 Creative Nonfiction Contest, Emerge 4 chapbook, September 2023](https://edenmillswritersfestival.ca/emerge-2/)
 
 "'In the old days, they gave you ether,' say Mum. She is a tiny mound of skin and bones on a stretcher wheeling to the OR. She closes her eyes, hand on an invisible mask. 'Sniff, sniff.'"
 
