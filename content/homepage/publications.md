@@ -8,7 +8,7 @@ My writing is published in Canadian and U.S. literary journals and anthologies. 
 
 ---
 
-###Scoliosis
+### Scoliosis
 Journal of Expressive Writing, September 7, 2023 https://www.journalofexpressivewriting.com/
 
 "It is incurable. Hippocrates diagnosed it in 400 BCE and had four grown men stand on a patient's spine to strighten the curve. Guess what? It didn't work." 
