@@ -8,10 +8,17 @@ My writing is published in Canadian and U.S. literary journals and anthologies. 
 
 ---
 
+### Coping With My Husband's Parkinson's Diagnosis
+[The Globe & Mail, First Person, Octobeer 16, 2023](https://www.theglobeandmail.com/life/first-person/article-coping-with-my-husbands-parkinsons-diagnosis-means-enjoying-one-day-at/#comments) 
+
+“His forehead is plaid with criss-crossing wrinkles. He knows those weren’t the right words. Is this a senior moment, a brain blip, dementia or the new thing?”
+
+---
+
 ### Scoliosis
 [Journal of Expressive Writing, September 7, 2023](https://www.journalofexpressivewriting.com/)
 
-"It is incurable. Hippocrates diagnosed it in 400 BCE and had four grown men stand on a patient's spine to strighten the curve. Guess what? It didn't work." 
+"It is incurable. Hippocrates diagnosed it in 400 BCE and had four grown men stand on a patient's spine to straighten the curve. Guess what? It didn't work." 
 
 ___
 
