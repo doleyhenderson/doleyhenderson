@@ -8,7 +8,7 @@ My writing is published in Canadian and U.S. literary journals and anthologies. 
 
 ---
 
-###The Elements
+### The Elements
 [Roots to Branches volume 1, Federation of British Columbia Writers anthology, November 19, 2023](https://bcwriters.ca) 
 
 "Suddenly, we are crushed from behind, spun sideways. In slow-motion, I spiral into the blue and rush of wind. My eyelids slam shut, like those of a doll, as I hit pavement." 
