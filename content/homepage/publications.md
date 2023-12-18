@@ -32,6 +32,6 @@ ___
 ### Wild Mustard
 Winner, [Eden Mills Writers Festival 2023 Creative Nonfiction Contest, Emerge 4 chapbook, September 2023](https://edenmillswritersfestival.ca/emerge-2/)
 
-"'In the old days, they gave you ether,' say Mum. She is a tiny mound of skin and bones on a stretcher wheeling to the OR. She closes her eyes, hand on an invisible mask. 'Sniff, sniff.'"
+"'In the old days, they gave you ether,' says Mum. She is a tiny mound of skin and bones on a stretcher wheeling to the OR. She closes her eyes, hand on an invisible mask. 'Sniff, sniff.'"
 
 ---
