@@ -3,6 +3,14 @@ title: "Publications"
 ---
 
 ---
+### The Elements
+Roots and Branches, Volume 1, Federation of British Columbia Writers, November 19, 2023
+https://bcwriters.ca
+
+"Suddenly, we are crushed from behind, spun sideways. In slow-motion, I spiral into the blue and rush of wind.
+My eyelids slam shut, like those of a doll, as I hit pavement." 
+
+---
 ### Coping With My Husband's Parkinson's Diagnosis
 The Globe & Mail, First Person, October 16, 2023
 https://www.theglobeandmail.com/life/first-person/article-coping-with-my-husbands-parkinsons-diagnosis-means-enjoying-one-day-at/#comments
@@ -19,7 +27,7 @@ Journal of Expressive Writing, September 7, 2023 https://www.journalofexpressive
 ### Wild Mustard
 Winner, 2023 Eden Mills Writers Festival Creative Nonfiction Contest: Emerge 4 chapbook, September 2023 https://edenmillswritersfestival.ca/emerge-2/
 
-"'In the old days, they gave you ether,' say Mum. She is a tiny mound of skin and bones on a stretcher wheeling to the OR. She closes her eyes, hand on an invisible mask. 'Sniff, sniff.'"
+"'In the old days, they gave you ether,' says Mum. She is a tiny mound of skin and bones on a stretcher wheeling to the OR. She closes her eyes, hand on an invisible mask. 'Sniff, sniff.'"
 
 ---
 ### Water World
