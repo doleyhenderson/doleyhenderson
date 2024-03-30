@@ -4,7 +4,15 @@ weight: 2
 header_menu: true
 ---
 
-My writing is published in Canadian and U.S. literary journals and anthologies. A full list is available on my [publications page](publications). Below is some of my work published online and in print in 2023.
+My writing is published in Canadian and U.S. literary journals and anthologies. A full list is available on my [publications page](publications). Below is my receent work published online and in print.
+
+---
+
+### Move it or Lose it
+[https://www.cmaj.ca/content/cmaj/196/11/E384.full.pdf]
+
+"I slip on my low-back, sparkly dress and practise my power stance in front of the mirror. Then I
+twirl and twirl, watching my scar wink and disappear, wink and disappear."
 
 ---
 
