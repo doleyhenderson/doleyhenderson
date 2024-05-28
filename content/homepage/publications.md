@@ -4,7 +4,7 @@ weight: 2
 header_menu: true
 ---
 
-My writing is published in Canadian and U.S. literary journals and anthologies. A full list is available on my [publications page](publications). Below is my receent work published online and in print.
+My writing is published in Canadian and U.S. literary journals and anthologies. A full list is available on my [publications page](publications). Below is my recent work published online and in print.
 
 ---
 
