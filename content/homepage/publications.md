@@ -24,7 +24,7 @@ twirl and twirl, watching my scar wink and disappear, wink and disappear."
 ---
 
 ### Coping With My Husband's Parkinson's Diagnosis
-[The Globe & Mail, First Person, Octobeer 16, 2023](https://www.theglobeandmail.com/life/first-person/article-coping-with-my-husbands-parkinsons-diagnosis-means-enjoying-one-day-at/#comments) 
+[The Globe & Mail, First Person, October 16, 2023](https://www.theglobeandmail.com/life/first-person/article-coping-with-my-husbands-parkinsons-diagnosis-means-enjoying-one-day-at/#comments) 
 
 “His forehead is plaid with criss-crossing wrinkles. He knows those weren’t the right words. Is this a senior moment, a brain blip, dementia or the new thing?”
 
