@@ -3,7 +3,7 @@ title: "Publications"
 ---
 
 ### Move it or Lose it
-[https://www.cmaj.ca/content/cmaj/196/11/E384.full.pdf]
+[Canadian Medical Association Journal March 26, 2024](https://www.cmaj.ca/content/cmaj/196/11/E384.full.pdf)
 
 "My daughters convinced me that low-back was the way to go and taught me the power stance to show my confidence about my scar."
 
