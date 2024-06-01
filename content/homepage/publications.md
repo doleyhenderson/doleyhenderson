@@ -9,7 +9,7 @@ My writing is published in Canadian and U.S. literary journals and anthologies. 
 ---
 
 ### Move it or Lose it
-[Canadian Medical Association Journal March 26, 2024] [https://www.cmaj.ca/content/cmaj/196/11/E384.full.pdf]
+[Canadian Medical Association Journal March 26, 2024](https://www.cmaj.ca/content/cmaj/196/11/E384.full.pdf)
 
 "I slip on my low-back, sparkly dress and practise my power stance in front of the mirror. Then I
 twirl and twirl, watching my scar wink and disappear, wink and disappear."
