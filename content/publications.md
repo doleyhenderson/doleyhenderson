@@ -2,6 +2,10 @@
 title: "Publications"
 ---
 
+### Six-word story
+[THe New Quarterly August 2024](https://tnq.ca/on-play-stories-from-the-tnq-community/?mc_cid=aaad03e881&mc_eid=5b2053841d)
+
+---
 ### Move it or Lose it
 [Canadian Medical Association Journal March 26, 2024](https://www.cmaj.ca/content/cmaj/196/11/E384.full.pdf)
 
